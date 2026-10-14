@@ -23,4 +23,3 @@ Summer internships 2027 in robotics, automation or production engineering.
 ### 📫 How to reach me
 joaquinmorzam@gmail.com
 
-⚡ Fun fact: I hold a professional music degree in saxophone 🎷
